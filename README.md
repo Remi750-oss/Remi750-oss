@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Remi750-oss
 - 👀 I’m interested in playing games
-- 🌱 I’m currently learning everything about computers and others miscellenious things like arts musique etc
+- 🌱 I’m currently learning computers and others miscellenious things like arts musique etc
 - 💞️ I’m looking to collaborate on git hub
 - 📫 Reach me on you tube discord and twich 
 
